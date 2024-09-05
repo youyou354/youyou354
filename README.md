@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @youyou354
+- 👀 I’m interested in Computer science, math, cyber security and cloud management.
+- 🌱 I’m currently studying a double diploma in maths and conputer scince at Sorbonne Paris Nord university.
+- 💞️ I’m looking to collaborate on any project that might be interesing.
+- 📫 How to reach me : linkdin
+- 😄 Pronouns: HE/HIM 
+- ⚡ Fun fact: ...
